@@ -1,1 +1,1 @@
-# Pelicin-Super-X-Sg-Only-Permanent
+# Pelicin Super X Sg Only Permanent
